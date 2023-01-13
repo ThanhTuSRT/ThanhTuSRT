@@ -1,7 +1,9 @@
 - 👋 Hi, I’m @ThanhTuSRT
-- 👀 I’m interested in coding
-- 🌱 I’m currently learning Python
+- 👀 I’m interested in coding.
+- 🌱 I’m currently learning Python, C++.
 - 💞️ I’m looking to collaborate on myself :))
+- 😁 I think I can do many special things.
+- 👍 Be focus, be confident and keep chasing your dreams.
 - 📫 How to reach me:
   + Email: tuthanhtunguyen1012@gmail.com / tu.thanh.ntt@gmail.com
 
