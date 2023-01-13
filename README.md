@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Python
 - 💞️ I’m looking to collaborate on myself :))
 - 📫 How to reach me:
-  + Email: tuthanhtunguyen1012@gmail.com
+  + Email: tuthanhtunguyen1012@gmail.com / tu.thanh.ntt@gmail.com
 
 <!---
 ThanhTuSRT/ThanhTuSRT is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
