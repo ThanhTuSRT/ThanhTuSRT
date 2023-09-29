@@ -6,7 +6,7 @@
 - 😁 I think I can do many special things.
 - 👍 Be focus, be confident and keep chasing your dreams.
 - 📫 How to reach me:
-  + Email: tuthanhtunguyen1012@gmail.com / tu.thanh.ntt@gmail.com
+  + Email: tu.thanh.ntt@gmail.com
 
 <!---
 ThanhTuSRT/ThanhTuSRT is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
