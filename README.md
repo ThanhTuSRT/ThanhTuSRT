@@ -4,6 +4,7 @@
 - 💞️ I’m looking to collaborate on myself :))
 - 😁 I think I can do many special things.
 - 👍 Be focus, be confident and keep chasing your dreams.
+- 🎶🎸 Favorite band: Imagine Dragons 😍 
 - 📫 How to reach me:
   + Email: tu.thanh.ntt@gmail.com
 
