@@ -6,6 +6,8 @@
 - 👍 Be focus, be confident and keep chasing your dreams.
 - 🎶🎸 Favorite band: Imagine Dragons 😍 
 - ⚽ Favorite football club: FC Bayern Munich 
+- ⚽ Favorite national football team: Germany 
+- Favorite singers: Dan Reynolds, Ha Anh Tuan, Hayd,...
 - 📫 How to reach me:
   + Email: tu.thanh.ntt@gmail.com
 
