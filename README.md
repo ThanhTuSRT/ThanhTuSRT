@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Python, C++.
 - 💞️ I’m looking to collaborate on myself :))
 - 😁 I think I can do many special things.
-- 👍 Be focus, be confident and keep chasing your dreams.
+- 👍 Be confident and keep chasing your dreams.
 - 🎶🎸 Favorite band: Imagine Dragons 😍 
 - ⚽ Favorite football club: FC Bayern Munich 
 - ⚽ Favorite national football team: Germany 
